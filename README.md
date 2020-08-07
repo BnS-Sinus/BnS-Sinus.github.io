@@ -1,2 +1,2 @@
 # BnS-Sinus.github.io
-Clan Homepage
+Clan Homepage (coming soon)
